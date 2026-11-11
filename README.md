@@ -25,7 +25,7 @@
 - **Personality:** I enjoy her confident, intelligent, and occasionally teasing personality.
 - **Character Development:** Despite her seemingly strict and competitive nature, she also has a caring and considerate side.
 - **Competence:** Her magical abilities, quick thinking, and determination make her an interesting character.
-- **Voice Acting:** I particularly enjoy her voice performance, especially because I recognize her Japanese voice actress in other games and characters.
+- **Voice Acting:** I particularly enjoy her voice performance, especially because I recognize her Japanese voice actress in other games and characters such as Yoimiya (Genshin Impact) and Light Hello (Umamusume: Pretty Derby).
 
 ### My Favorite Aspect
 
